@@ -1,2 +1,1 @@
-<p align="center">https://www.patreon.com/cw/c4l4mit11_
-<p align="center">peep patreon until i complete new github <3
+<p align="center"><img width="735" height="587" alt="image" src="https://github.com/user-attachments/assets/ce52bcd1-d840-4dda-8d50-9bcca0a2d4e5" />
