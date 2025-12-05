@@ -1,1 +1,3 @@
-<p align="center"><img width="735" height="587" alt="image" src="https://github.com/user-attachments/assets/ce52bcd1-d840-4dda-8d50-9bcca0a2d4e5" />
+<p align="center"> remaking uhm uhhh dni pro/darkship and forsaken and countryhumans pretty much and under 14 iwec
+
+<p align="center"> trust me i'll update this soon
