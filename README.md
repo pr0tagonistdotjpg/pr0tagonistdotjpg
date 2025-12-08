@@ -3,3 +3,5 @@
 <p align="center"> trust me i'll update this soon
 
 <img width="736" height="1051" alt="image" src="https://github.com/user-attachments/assets/b58a4118-8775-41d6-a5c1-d12b7362bf96" /> this isme
+
+https://youtu.be/yuKO0Zi_P0g?si=Vl40JUndMNc2h9WY <- alter strawp
