@@ -2,7 +2,7 @@
 
 <p align="center"> i literally only have two friends on this game that i've already known for years and i wanna make more but i will never ever come up to someone willingly (hhhey............. if u wan........ frned.......... :eyes:)
   
-<p align="center"> if i folllow you i fw you. if i unfollow you i do not fw you anymore. if i unfollow you then follow you back soon after uhmm i was an idiot LOL
+<p align="center"> if i folllow you i fw you. if i unfollow you i do not fw you anymore (or the site glitched cuz it's done that before)
   
 <p align="center"> trust me i'll update this soon
 
