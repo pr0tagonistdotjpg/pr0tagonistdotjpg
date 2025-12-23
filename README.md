@@ -7,5 +7,3 @@
 <p align="center"> trust me i'll update this soon
 
 <img width="736" height="1051" alt="image" src="https://github.com/user-attachments/assets/b58a4118-8775-41d6-a5c1-d12b7362bf96" /> this isme
-
-https://jcjensoncertified.straw.page/ <- alter strawp
