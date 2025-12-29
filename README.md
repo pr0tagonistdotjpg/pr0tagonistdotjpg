@@ -6,7 +6,7 @@
   
 <p align="center"> if i folllow you i fw you. if i unfollow you i do not fw you anymore (or the site glitched cuz it's done that before)
   
-<p align="center"> trust me i'll update this soon
+<p align="center"> this is me hi real me hi
 
 
 <img width="264" height="819" alt="image" src="https://github.com/user-attachments/assets/6a52c9c4-d402-48ed-adcd-2830157b1170" />
