@@ -8,4 +8,5 @@
   
 <p align="center"> trust me i'll update this soon
 
-<img width="736" height="1051" alt="image" src="https://github.com/user-attachments/assets/b58a4118-8775-41d6-a5c1-d12b7362bf96" /> this isme
+
+<img width="264" height="819" alt="image" src="https://github.com/user-attachments/assets/6a52c9c4-d402-48ed-adcd-2830157b1170" />
